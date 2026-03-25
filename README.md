@@ -1,3 +1,3 @@
 ## Prazer, Rafael D'Ávila! 👋
 
-Dev
+[IA] Vibe Coder - App|Web|Game 
